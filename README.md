@@ -1,2 +1,2 @@
 # first-project-
-First project for study
+Hi Kiddo, hope you are good. Are you ready to begin
